@@ -1,0 +1,1 @@
+# umax-terms-of-use
